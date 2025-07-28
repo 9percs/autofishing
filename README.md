@@ -9,6 +9,7 @@ Use smart or get banned lol.
 1. Put the `.jar` in your mods folder
 2. Start Minecraft
 3. Fish...
+4. join the dc for premium plans and info!
 
 ## 📌 Reminder
 
